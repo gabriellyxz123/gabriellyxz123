@@ -13,4 +13,3 @@ meu nome é gabrielly
 gabriellyxz123
 
 ![](https://media1.tenor.com/m/MCBkr6dWLkUAAAAd/corinthians-rodrigo-garro.gif)
-https://media1.tenor.com/m/MCBkr6dWLkUAAAAd/corinthians-rodrigo-garro.gif
